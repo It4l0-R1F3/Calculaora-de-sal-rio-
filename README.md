@@ -1,1 +1,1 @@
-# Calculaora-de-sal-rio-
+# Calculaora-de-salrio-
